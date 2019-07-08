@@ -1,2 +1,0 @@
-# georgeraptis.github.io
-Portfolio
